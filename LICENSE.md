@@ -1,4 +1,4 @@
-
+rare bridger western Script is the best bridger western Script, featuring custom skins and no clip. Safe and powerful for all your needs.
 
 
 
